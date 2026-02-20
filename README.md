@@ -63,7 +63,7 @@ Cualquier cambio se publicará en esta misma página.
 
 Si tienes preguntas sobre esta política de privacidad, puedes contactarnos en:
 
-**Correo:** [tu_correo@email.com](mailto:tu_correo@email.com)
+**Correo:** [gus16710@gmail.com](mailto:gus16710@gmail.com)
 
 ---
 
